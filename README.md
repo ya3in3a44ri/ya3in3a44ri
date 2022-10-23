@@ -6,4 +6,4 @@
 
 *WEBSITE for IRanian People : https://redbluezone.top*
 
-*Exploit Searcher WEBSITE for IRanian People : jliva.top*
+*Exploit Searcher WEBSITE for IRanian People : https://jliva.top*
